@@ -37,7 +37,3 @@ Wahrheit ist nicht nur einfach „wahre Aussage“ oder „Kenntnis“, Wahrheit
 Literaturnachweis
 
 [1] Martin Hedegger,2006: Sein und Zeit, Neunzehnte Auflage, Tübigen: Max Niemeyer Verlag
-
-[2] James Clavell, 2013: Sunzi: Die Kunst des Krieges, München: Droemer Knaur GmbH & Go.
-
-[3] Uta Fellmann, 2015: Konfuzius: Das Buch von Maß und Mitte, Stuttgart: Philipp Reclam jun. GmbH
